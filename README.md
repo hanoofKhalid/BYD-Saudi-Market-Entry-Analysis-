@@ -58,5 +58,5 @@ This strategic research project evaluates the market entry, localization, and su
 ## 🧑‍💻 Prepared By
 **Alhanoof Aleid**  
 *Chinese Language Specialist | Market Strategy Analyst*  
-🔗 [LinkedIn Profile](https://linkedin.com/in/alhanoof-aleid-%E5%93%88%E5%8A%AA%E8%8A%99)  
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/alhanoof-aleid-哈努芙-9a9060211?utm_source=share_via&utm_content=profile&utm_medium=member_ios)  
 *"Dedicated to bridging the gap between Chinese innovation and Saudi Vision 2030."*
